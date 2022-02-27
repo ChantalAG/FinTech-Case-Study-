@@ -58,6 +58,13 @@ They all offer a user-friendly interface for new and experienced traders to buy 
 ### Results and Recommendations
 <hr
 
+Bitbuy has proven itself to be an asset in an investment portfolio. Making and topping the lists of many recommended crypto exchange platforms. In addition to providing the average user with an easy, straight forward platform for trading they are also expanding into the corporate space.  According to the website www.bitbuy.ca 
+*“As a leader in the Canadian digital asset space, we will provide a deeper insight on what corporations need to consider when integrating cryptocurrency in their organization” *. 
+In the “what to consider section”, they offer insight on adding Bitcoin as investment on your balance sheet, adding Bitcoin as a form of payment for your business, adding Bitcoin as a salary payout option to your employees and taxation & accounting Q&A on adding Bitcoin to your corporate treasury. 
+
+Compared to its competitors in the cryptocurrency and blockchain domain, Bitbuy often comes out ahead in terms of fees, security, and ease of use. The success of many companies is measured by the number of users, number of trades made, number of corporate clients, awards, and recognitions. Bitbuy is perfoming well on all these metrics with 375 000 users, over $4 billion trades, 1000 corporate clients and is a highly recommended platform. 
+
+One of the limiting aspects of Bitbuy is that they only accept Canadian citizens and residents as users and only Canadian fiat currency. A recommendation that would expand the business and provide access to a larger customer base and allow them to be even more competitive is to accept US dollars and non-Canadian users. Canadians have many choices in this field including many US based companies that accept Canadian users and Canadian Fiat currency. Having a cash card system like Bitvo (www.Bitvo.com), where you can spend fiat wherever visa is accepted would be another benefit to their users. These additional services would require the company to expand and incorporate additional technologies. As a company that has seen success over the 6 years of its existence, the future and what they have to offer is yet to be seen. However, crypto and blockchain is paving a way for many financial changes in the future and Bitbuy will most likely continue to expand and provide great services for its users for years to come. 
 
 ## References
 <hr
