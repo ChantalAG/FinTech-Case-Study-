@@ -1,4 +1,4 @@
-### FinTech-Case-Study  -   Unit 1:Intro to Finance Homework Assignment
+### FinTech-Case-Study  -   Unit 1: Intro to Finance Homework Assignment
 
 <img src="https://user-images.githubusercontent.com/99493522/155629364-6cde7668-b9a9-4fd8-9f14-b9334a03b65c.jpg" width="200" height="200">
 
